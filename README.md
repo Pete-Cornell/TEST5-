@@ -2,3 +2,4 @@
 G.k
 Text Change
 textis cvlileba 
+Sheicvala neta rame?
